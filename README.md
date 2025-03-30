@@ -1,0 +1,2 @@
+# EN
+About GalaxsUS Project
